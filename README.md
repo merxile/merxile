@@ -13,8 +13,7 @@
 <p align="center"> <img src="https://64.media.tumblr.com/76498915a1b8984999e88be3cc99f3a9/a63a759e40e4577b-35/s75x75_c1/3a1a61db8a2a1f14aacc0fe2161097a29b221593.gif"> <i>h</i>e    <b>him</b>       $${\color{#759667} + }$$ 6te<i>en</I>
 <p align="center"> <a href="https://rentry.co/vvermillion">interests</a> $${\color{#759667} .}$$ <img src="https://pixels.crd.co/assets/images/gallery60/ff35b74f.gif?v=875a4f74"> 
 
-<p align="center">   <img src="https://64.media.tumblr.com/ae4b914355cd68efb3f3ddf498a4b3e8/f1af8e97fbb78ea1-b3/s250x400/fcf07b3e4aa4249e64477cb726d842849ed1711a.pnj"width=250>
-    
+<p align="center"> <img src="https://64.media.tumblr.com/ae4b914355cd68efb3f3ddf498a4b3e8/f1af8e97fbb78ea1-b3/s250x400/fcf07b3e4aa4249e64477cb726d842849ed1711a.pnj"width=250>
 <p align="center"> $${\color{#90B49B} biggest}$$ <img src="https://64.media.tumblr.com/9cef35923428be988a44c60f51409e74/cdae7369edfe0a2a-c7/s100x200/bfcae010899c2b8453580d69d78d9065a89faedf.gifv"width=50> $${\color{#759667} .}$$ /<i>h</i>srs
 
 
